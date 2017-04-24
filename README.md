@@ -1,1 +1,1 @@
-# infinite_god
+# i_g
